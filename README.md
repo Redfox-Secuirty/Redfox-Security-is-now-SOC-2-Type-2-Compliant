@@ -1,0 +1,1 @@
+# Redfox-Security-is-now-SOC-2-Type-2-Compliant
